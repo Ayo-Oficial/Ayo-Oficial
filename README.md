@@ -1,7 +1,7 @@
 
 ## Olá, Eu sou o Samuel Araújo da Costa  🤚 
 
-### Sou estudante de sistemas de informação e sou apaixonado por novas tecnologias 😁
+### Sou estudante de sistemas de informação e gosto de descobrir novas tecnologias 😁
 
 
 
